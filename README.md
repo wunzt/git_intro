@@ -1,2 +1,4 @@
-Eric Ianni
-
+Thomas Wunz
+wunzt@oregonstate.edu
+burnt orange
+Sabaton
