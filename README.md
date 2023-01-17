@@ -1,1 +1,2 @@
-Eric Ianni
+Thomas Wunz
+wunzt@oregonstate.edu
